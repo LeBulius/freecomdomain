@@ -11,7 +11,7 @@ Checkdomain offers a promotional credit when signing up through a special referr
 ## Step-by-Step Tutorial
 
 1. Click this link to start: [https://www.checkdomain.net/](https://www.checkdomain.net/en/?pid=a23082c9)  
-   You’ll receive **€12 free credit** automatically.
+   You’ll receive **€12 free credit** automatically. Any other link will not get you the credit or less. 
 
 2. Search for one or multiple domains you want. The credit will apply to your checkout amount.
 
